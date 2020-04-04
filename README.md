@@ -9,3 +9,5 @@
 ## Youtube
 * Week1 : https://youtu.be/MK70zhE8PPI
 * Week2 : https://youtu.be/mHOA_KOPYu4
+* Week3 : https://youtu.be/L2fAVGEuJCM
+* Week4 : https://youtu.be/OyCsnjZNUfY
